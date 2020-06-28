@@ -1,0 +1,1 @@
+# frighepedia.github.io
